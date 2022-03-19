@@ -1,6 +1,6 @@
 ## Hi there! 👋
 
-### I’m Ilya and now I’m 20*
+### I’m Ilya and now I’m 20
 
 ---
 
